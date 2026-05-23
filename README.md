@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @manish8k090
+- 👋 Hi, I’m @manishk8090
 - 👨‍🎓 Student
 - 🌱 I’m currently studying ...
 
